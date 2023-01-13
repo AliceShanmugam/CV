@@ -1,1 +1,1 @@
-To open file CV Alice Shanmugam.pdf, click on it.
+Pour ouvrir le fichier CV Alice Shanmugam.pdf, cliquer sur celui-ci.
